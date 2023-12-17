@@ -1,4 +1,4 @@
 Dette er min aller sidste øver før eksamen
 Prøver lige igen
 
-SJÅLÅLÅ
+GODT klaret
